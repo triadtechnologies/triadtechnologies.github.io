@@ -1,1 +1,0 @@
-# triadtechnologies.github.io
